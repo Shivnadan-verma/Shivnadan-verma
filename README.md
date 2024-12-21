@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Shivnadan-verma
+- 👋 Hi, I’m @Shivnandan-verma
 - 👀 I’m looking a internship
 - 🌱 I’m currently a B tech student
 - 💞️ I’m looking to collaborate on ...
